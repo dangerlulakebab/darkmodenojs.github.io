@@ -1,1 +1,3 @@
-# darkmodenojs.github.io
+
+https://dangerlulakebab.github.io/darkmodenojs.github.io/
+LINK⬆️⬆️
